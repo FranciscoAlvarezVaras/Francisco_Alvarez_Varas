@@ -1,5 +1,7 @@
 # Francisco_Alvarez_Varas
 
+<img src="https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif" width="40" height="40" />
+
                       [¡Visita mi LinkedIn!](https://www.linkedin.com/in/frankalvarezv/)    
 
 Why do people click, convert, and stay? | Exploring that through SEO, content, and data
